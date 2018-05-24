@@ -2,8 +2,8 @@
 
 Mahasiswa Ilmu Komputer IPB
 
-*Dramaga, Bogor* \            
-*+62 822-6858-0500* \                
+*Dramaga, Bogor* \
+*+62 822-6858-0500* \
 *elsanadpe407@gmail.com*
 
 ## **Pendidikan**
