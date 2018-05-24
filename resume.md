@@ -10,15 +10,15 @@ elsanadpe407@gmail.com*
 
 ### **SMPN 5 Batusangkar**
 
-Juli 2011 - Juni 2014: Siswa
+Juli 2011 -- Juni 2014: Siswa
 
 ### **SMAN 3 Batusangkar**
 
-Jul 2014 - Nov 2017: Siswa
+Jul 2014 -- Nov 2017: Siswa
 
 ### **Mahasiswa IPB**
 
-Jul 2017 - sekarang  
+Jul 2017 -- sekarang  
 
 ## **Organisasi**
 
